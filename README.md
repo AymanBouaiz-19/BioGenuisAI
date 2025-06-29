@@ -65,6 +65,8 @@ BioGeniusAI is just the beginning. In the future, it could:
 
 
 
+An advanced AI engine capable of crafting highly personalized and impactful resumes for all roles and industries intelligently optimized to meet the exact needs of employers and hiring teams
+
 Generate complete social profiles from resumes
 
 Suggest hashtags, captions, or bios based on analytics
