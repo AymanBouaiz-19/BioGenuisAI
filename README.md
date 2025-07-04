@@ -130,3 +130,15 @@ e-mail: projects.aymanbouaziz086@gmail.com
 
 > 🧠 “It’s not about where I come from — it’s about what I create.”  
 > *Ayman Bouaziz*
+
+
+![1000010745](https://github.com/user-attachments/assets/6a1e7c42-bd8f-4c7b-9f12-721c73bb9d48)
+![1000010746](https://github.com/user-attachments/assets/ccca0fd9-cbb2-4bc5-9e7c-9a2a256e5379)
+![1000010747](https://github.com/user-attachments/assets/9948a912-1462-4742-9ffe-327e09cb6837)
+![1000010748](https://github.com/user-attachments/assets/ea3a446d-a654-4af2-9f4a-441f505e3b48)
+![1000010727](https://github.com/user-attachments/assets/500b6f35-9b1c-4a30-8587-1cea4b2289b7)
+![1000010741](https://github.com/user-attachments/assets/8c950258-04bf-4836-a7be-2ac1423ba12d)
+![1000010742](https://github.com/user-attachments/assets/75cbc226-0318-4536-abbc-a495c3e848f8)
+![1000010743](https://github.com/user-attachments/assets/06fc0120-b064-425d-9c3b-53086600cafd)
+![1000010728](https://github.com/user-attachments/assets/0db30341-2c79-4658-99f4-50c01375b02d)
+
