@@ -95,7 +95,7 @@ Next Goals:
 
 🌐 **Live Demo:** _Coming Soon_  
 📸 The images below  
-📂 GitHub:  https://github.com/AymanBouaiz-19/BioGenuisAI
+📂 GitHub:  https://github.com/AymanBouaziz-19/BioGenuisAI
 
 ---
 
